@@ -1,0 +1,4 @@
+- What's up! I'm MrCube6
+- I make coding-related Minecraft videos!
+- I like cats :D
+- and thats it...
